@@ -6,7 +6,6 @@
 - 📫 How to reach me **bojjayaswanthkumarreddy@gmail.com**    
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/14SuR09qh1Gra0fuPKunFrtxgU19gTjXz/view?usp=drivesdk](https://drive.google.com/file/d/14SuR09qh1Gra0fuPKunFrtxgU19gTjXz/view?usp=drivesdk)
-- 📄 Know about my experiences [https://docs.google.com/document/d/11NgIR1cyjXlIbyNrlcn-Yjvr3yWqkY17onSAcI2kpzQ/edit?usp=drive_link](https://drive.google.com/file/d/14SuR09qh1Gra0fuPKunFrtxgU19gTjXz/view?usp=drivesdk)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
